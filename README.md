@@ -28,17 +28,17 @@ _____
  4. **Mrs.Harpreet kaur**-HOD APPLIED SCIENCES
     She talked about sincerity performs an important role in order to fulfill your dreams of placement and bright future
 ____
-  5.**Mr.Akshay Girdhar**-Deam academics 
+5. **Mr.Akshay Girdhar**-Deam academics 
     Talked about
   + Good skill set
   + Peer learning
 ______
-   6.**Mr.Parminder Singh**-Dean student welfare
+  6. **Mr.Parminder Singh**-Dean student welfare
 ______
-   7.**Dr.Sehajpal Singh**-Principle GNDEC
+   7. **Dr.Sehajpal Singh**-Principle GNDEC
     He guided us to become a good human being and to work on oneself in order to become a standout person
 ____
-   8.**Mr.Ashok Singhla**-Financial Advisor
+   8. **Mr.Ashok Singhla**-Financial Advisor
 
   Talked about Loans 
   
@@ -51,7 +51,7 @@ Empowered us that we too can be the *CROREPATIS* of the future
 ____
 
   9. The Vote of thanks was done by **Ms.Harpreet Kaur Grewal** student of 1st year Btech CSE department on the behave of the full 1st year students
-
+_____
   
      
    
