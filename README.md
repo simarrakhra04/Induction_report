@@ -52,6 +52,48 @@ ____
 
   9. The Vote of thanks was done by **Ms.Harpreet Kaur Grewal** student of 1st year Btech CSE department on the behave of the full 1st year students
 _____
+
+# Day 2
+# 1st Aug
+
+1.**BUDDY4STUDY**
+ + They talked about a number of scholarships but mainly aimed at SATYA SCHOLARSHIP which includes that the person availing should be
+     + citizen of India
+     + Parents should have income less than 5 lakes
+     + Attendence should be atleast 75%
+     + Only tution fees to be paid only for the first year
+     + Special programme for PWD and Girl students
+  _______
+
+  2. **Dr.Arshdeep Singh**-he is prof at PAU Food technology department
+ Helped us to understand the Role of food in students life and importance of nutrition to cope upto the pace of today's Era
+
+3. Apart from this we even had **Maths and Englsih** proficiency test 
+______
+_______
+# Day 3 
+# 2nd Aug 
+1. **Dr.Jaswinder Singh**-He has 3 world records in the field of science and he used his car as science and math lab
+   
++ In his lecture he streesed upon the fact the everything in this universe has his base made of mathematics whether it is chemistry or physics or it is *EKOMKAR*
++ In his lecture he even taught many facts interesting like now I can not only tell the no. of bones in my body but can also count them
+____
+
+2. *Dr.Priya darshani*-Universal Human Values
+   Who takes about one's priorities and the cause of long and short term happiness  _____
+# Day 4
+# 4th Aug 
+1. We had 2 lectures-**Chemistry and P2P**
+  ____
+2. Lecture by **Dr. priya Darshani**
+_____
+3. A brief introduction to the **Causmic Club**
+
+     
+
+     
+   
+   
   
      
    
